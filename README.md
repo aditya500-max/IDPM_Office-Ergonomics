@@ -1,0 +1,1 @@
+Designed a comprehensive approach to enhance office chair ergonomics through rigorous application of 10+ Design Methodologies. Executed Focus group discussions, Brainstorming, Quality Function Deployment (QFD), Kano analysis, Morphological charting, Function Structure Diagram (FSD) to develop a robust solution addressing ergonomic challenges faced by users.
